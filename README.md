@@ -91,5 +91,5 @@ TPI = TAKE PROFIT 1 POINT
 
 # HI PEPE 💯 AVENGERS 🌟🌟🌟🌟🌟
 
-# WA ITTI ME 💢🌕🌘🌑⚓🧭🕕🕧📯🗝️📜⚱️
+# WA ITTI ME 💢🌕🌘🌑⚓
 
